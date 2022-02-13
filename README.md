@@ -7,5 +7,5 @@
  • وبس استمتعو 😉
 
 Insta 3d5x |
-Tele ddddcl|
+Tele ddddcl |
 Discord Fares._.#9299
